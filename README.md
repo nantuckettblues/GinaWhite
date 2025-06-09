@@ -30,3 +30,5 @@ When I’m not solving data problems, you’ll find me:
 - 📬 Substack newsletter launching soon!
 
 Thanks for stopping by — feel free to check out my pinned projects below. More coming soon!
+
+![North Beach Palm Trees 2](https://github.com/user-attachments/assets/342a6da1-bc5d-413c-84cf-132e4faf8e79)
